@@ -48,7 +48,9 @@
 ## 星链机场优惠码
 
 当前活动优惠中，直接购买。
- ## 星链机场测试
+最新优惠码询问客服即可
+
+## 星链机场测试
 
 测试速度可流畅观看Netflix、HBO MAX、Spotify、Disney+、Hulu 、Primevideo等流媒体与油管4K视频并支持支持ChatGPT
 
